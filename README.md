@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @SKL12AZ
 - 👀 I’m interested in ...game
-- 🌱 I’m currently learning ...good
+- 🌱 I’m currently learning ...gooddff
 - 💞️ I’m looking to collaborate on ...in the app
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
